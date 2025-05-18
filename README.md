@@ -1,4 +1,4 @@
-## 📊 GitHub Stats
+## 📊 My Stats
 
 <div align="center">
 
